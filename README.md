@@ -1,2 +1,0 @@
-# CSGO-hacks-
-CSGO hacks 
